@@ -16,3 +16,15 @@ Here are some ideas to get you started:
 -->
 
 Currently a Computer Science undergraduate at the University of Hong Kong. Also a former medical student who made his brave decision to chase his childhood dream of becoming an engineer.
+
+### My own opinions and thoughts 📖
+
+Blog coming up soon!
+
+### Some interesting yet mischievous projects from me and my dearest friends...
+
+### Books that I have enjoyed recently 📚
+
+### Youtube videos I have watched 📹
+
+### List of Spotify Music that I listened to the most 🎵
