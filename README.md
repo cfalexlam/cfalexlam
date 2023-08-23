@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Currently a Computer Science undergraduate at the University of Hong Kong. Also a former medical student who made his brave decision to chase after his childhood dream of becoming an engineer.
+Currently a Computer Science undergraduate at the University of Hong Kong. Also a former medical student who made his brave decision to chase his childhood dream of becoming an engineer.
